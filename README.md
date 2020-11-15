@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rajesh.gradate@gmail.com**
 
-- ⚡ Fun fact **Oh! I am an Ultra Runner**
+- ⚡ Fun fact **Oh! I'm an Ultra Runner**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
